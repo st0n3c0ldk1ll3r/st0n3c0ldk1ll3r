@@ -5,8 +5,8 @@
 
 CEO of Your Mom F__kery inc. 
 
-
 Bald monkey.
 
-
 Send nu[k|d]es
+
+Road to success.
