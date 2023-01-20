@@ -1,3 +1,5 @@
+![bicycles stores here](https://www.codewars.com/users/st0n3c0ldk1ll3r/badges/small?theme=light&raw=true)
+
 - I'm not Jeff.
 - Coding cool stuff.
 - Not actually a killer.
